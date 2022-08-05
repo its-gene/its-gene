@@ -1,4 +1,4 @@
-# Sobre mim:dizzy:
+
 :wave:Oii meu nome é @Genesis
 - 👀 Estou interessado em poder aprender sobre o github
 - 🌱 I’m currently learning um pouco sobre este site
